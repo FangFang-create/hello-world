@@ -2,4 +2,4 @@
 my first code
 
 
-Good Jod！girl 😝
+Good Job！girl 😝
